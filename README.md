@@ -1,1 +1,1 @@
-![ooparts by nilfruits](https://github.com/user-attachments/assets/061d3155-f5bb-4c38-aa87-b1b74458bf9c)
+![download (1)](https://github.com/user-attachments/assets/a8857647-cab0-4452-808e-942f454fa555)
