@@ -1,2 +1,3 @@
-
-![ooparts by nilfruits](https://github.com/user-attachments/assets/18046a70-1e5e-4924-b443-1a0f39cb4cde)
+<p <p align="center">
+  <img src="https://raw.githubusercontent.com/tactural/tactural/main/assets/images/banner.jpg" alt="ooparts by nilfruits" />
+</p>
